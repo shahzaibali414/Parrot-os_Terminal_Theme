@@ -1,4 +1,5 @@
 Hi I'm shahzaibali414 A.K.A Rootednerd 
+
 I love learning new stuff 
 I'm 14 and currently I am learning HTML,CSS,JS,PHP,ETH-HACKING
 and that's all.. BTW thanks for reading 
